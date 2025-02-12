@@ -1,1 +1,1 @@
-# magikarp6..github.io
+# magikarp6.github.io
